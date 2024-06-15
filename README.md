@@ -1,1 +1,1 @@
-new to this and still learning
+don't read me, first app and still learning
